@@ -1,28 +1,25 @@
 <div align="center"> 
 
- <img width="2048" height="195" alt="pancake" src="https://github.com/user-attachments/assets/9d53db45-9812-40ad-827f-f58f8044c98b" />
-
+<img width="2048" height="347" alt="image" src="https://github.com/user-attachments/assets/f347a7b9-57b5-4e5c-acc8-6b4b41c8246e" />
 <div align="center">
  <img width="832" height="40" alt="image" src="https://github.com/user-attachments/assets/fff717e8-03e6-4f95-ba3c-14f755bb8b51" />
  <div align="center">
   
 ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friendships !</a>
 
- ![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=orange&amp;label=+Pancakes  )
+ ![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=red&amp;label=⊹ )
 
 ┄┄　﹒　᧔𐓪᧓　﹒　┄┄
 
  <div align="center">
-<img width="343" height="230" alt="2026_08_23_0ko_Kleki" src="https://github.com/user-attachments/assets/8007dadc-a5a2-408c-9bcf-ec8f6c6b9c26" /> <img width="80" height="137" alt="image" src="https://github.com/user-attachments/assets/08567868-eeab-4690-9823-61281d4a6093" />
+<img width="416" height="416" alt="Screenshot 2026-10-05 5 10 21 PM" src="https://github.com/user-attachments/assets/eb1b2473-7cbd-4cc8-b3f9-cc63cd296112" />
+<img width="416" height="416" alt="Screenshot 2026-10-05 4 51 44 PM" src="https://github.com/user-attachments/assets/7be67e37-bb9b-438d-b962-bc4b6ffa0952" />
 
-<img width="323" height="230" alt="2026_08_23_0mc_Kleki" src="https://github.com/user-attachments/assets/00650f54-54ab-4099-b0d9-894ff1d3f2d2" />
 
-<div align="centertop">
+
+<div align="center">
 
 <a href="https://starsoflumion.atabook.org" style="color: inherit;">꒰ 新book ꒱ ‎ ‎‎ ‎</a>
 <a href="https://starsoflumion.straw.page" style="color: inherit;"> ꒰  straw / sp‎ ꒱</a> <a href="https://https://guns.lol/lumi0n" style="color: inherit;">  ‎  ‎  ‎ ꒰ guns‎ ꒱</a>
 
-
-<img width="2048" height="157" alt="blueberry" src="https://github.com/user-attachments/assets/1d0fa880-e7b1-4bb3-9e1f-cfed40f5874a" />
-<div align="center">
-(cred to candvcane on tumblr ^)
+<img width="2048" height="347" alt="image" src="https://github.com/user-attachments/assets/f347a7b9-57b5-4e5c-acc8-6b4b41c8246e" />

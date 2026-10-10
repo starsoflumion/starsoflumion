@@ -12,9 +12,7 @@ ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friend
 ┄┄　﹒　᧔𐓪᧓　﹒　┄┄
 
  <div align="center">
-<img width="416" height="416" alt="Screenshot 2026-10-05 5 10 21 PM" src="https://github.com/user-attachments/assets/eb1b2473-7cbd-4cc8-b3f9-cc63cd296112" />
-<img width="416" height="416" alt="Screenshot 2026-10-05 4 51 44 PM" src="https://github.com/user-attachments/assets/7be67e37-bb9b-438d-b962-bc4b6ffa0952" />
-
+remaking this again sigh wip
 
 
 <div align="center">

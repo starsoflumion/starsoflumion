@@ -32,10 +32,7 @@ Stamps [BRIGHT COLOR WARNING]</summary>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/175f6d06-8ae1-4a37-990e-90f01dbddca8" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/25471b1a-3c91-44aa-a8c8-cc528fbd50f9" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/eadd37bd-6e23-46b3-86d0-9876fe83e694" />
-(more soon yes)
-
-
-
+(more soon ye.s)
 
 
 

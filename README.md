@@ -3,7 +3,7 @@
 <img width="1024" height="120" alt="image" src="https://github.com/user-attachments/assets/ac0ea6fe-dcf7-43e0-8bb4-54b29504037b" />
 
  ![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=blue&amp;label=⊹ )
-
+this read me is temporary.
 ┄┄　﹒　᧔𐓪᧓　﹒　┄┄
 
 <div align="center">

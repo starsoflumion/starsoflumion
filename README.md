@@ -36,6 +36,8 @@ Stamps [ALSO AWARENESS]</summary>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/eadd37bd-6e23-46b3-86d0-9876fe83e694" />
 
 
+TW FOR MENTIONS OF s3x/r4pe, explicit ship style/contents AND mentions of genitals.
+
 Hello, i would like to state something against the gourdy yume, or maggot (m4gg0tzz)
 
 Speaking of this person, i have a few things to say about them and this is for awareness purposes to be careful of wlf.

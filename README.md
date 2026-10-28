@@ -130,8 +130,13 @@ listen, don't try to hide it. i've already found out. their sfw account stopped 
 
 i do not expect you to believe me, but it is genuinely for your safety, please.
 
-Update 2 Soon
 
 OMG THEY DELETED THE ACCOUNT SO I CANT FIND ANYTHING MORE LMAOOO?
+
+HELP LOOK?
+
+<img src="https://media.discordapp.net/attachments/1538298494509391973/1565102483599266074/IMG_2807.png?ex=6ae3aec6&amp;is=6ae25d46&amp;hm=74cb4487026d2427d31c8e9e9ed582c1f88bfbec70139374ca095f04962726e3&amp;=&amp;format=webp&amp;quality=lossless&amp;width=591&amp;height=640" alt="Image"/> <img src="https://media.discordapp.net/attachments/1538298494509391973/1565102484068900874/IMG_2806.png?ex=6ae3aec6&amp;is=6ae25d46&amp;hm=40e7bbe1dd73830120d69b8a5717e1e996308ad675ec2a9b26b98683b8132c78&amp;=&amp;format=webp&amp;quality=lossless&amp;width=429&amp;height=640" alt="Image"/>
+
+DUDE MAGGOT UR PATHETIC WTF
 
 

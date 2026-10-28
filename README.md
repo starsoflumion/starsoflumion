@@ -102,13 +102,35 @@ thank you for reading! evidence view below. look at your own risk because it inc
 
 
 thats it for now...
+.
+.
+.
+.
+UPDATE ONE : 10/28/26
 
+' coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that. '
 
+your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, what is this lying . . ? 
+<div align="left">
+<img width="424" height="439" alt="image" src="https://github.com/user-attachments/assets/69187ade-3c28-4aaf-9c42-501aecd8932f" />
+View of their 'sfw' gourdy art
+<div align=center">
+<img width="261" height="264" alt="image" src="https://github.com/user-attachments/assets/5298d5f1-e8cf-45e6-b1ad-12b11d4a0d30" />
+ 
+View of similarity: Head #1 , on their dark account.
 
+<img width="89" height="104" alt="image" src="https://github.com/user-attachments/assets/85bac2ec-5b74-40b0-ab38-16caed985513" />
+<img width="148" height="115" alt="image" src="https://github.com/user-attachments/assets/6e1d314c-ad7f-4960-92da-dca70670685f" />
+<img width="96" height="82" alt="image" src="https://github.com/user-attachments/assets/e6fdf991-5366-4121-a488-ee37fa2776a9" />
+(First pic from their 'sfw' account, 2nd&3rd on their dark account.
 
+Interests are both mc bushpig and machine girl according to some sounds on the dark account, age is the same, so MUCH SIMILARITIES!!! 
 
+listen, don't try to hide it. i've already found out. their sfw account stopped posting at around 10/13/2026, and their dark one seems to be posting more now, within the same artstyle.
 
+i do not expect you to believe me, but it is genuinely for your safety, please.
 
+Update 2 Soon
 
 
 

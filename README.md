@@ -54,7 +54,7 @@ according to one of wlfs posts, twisted gourdy was 9, and soul being 45 (also ne
 
 yeah, it's just all fiction, right? no. this affects reality, of course. it's just the point of  darkshipping, of course, but this way has gotten too fucking far. evidence is on their little darkship account, look at your own risk, but if you want me to show you instead, please dm me. i do not want to show explicit imagery onto this read.me as it could break a rule.
 
-it is VERY, VERY weird to post explicit content onto tiktok, maggot. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post.
+it is VERY, VERY weird to post explicit content onto tiktok, maggot. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post, in a platform with also kids apparently.
 
 i know this awareness read.me doesn't seem proper but this is what i can do for the better of everyone's safety and interaction within the gourdy yume/cody/maggot, if anything. 
 

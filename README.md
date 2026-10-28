@@ -1,4 +1,4 @@
-<div align="center"> 
+<div align="center">
 
 <img width="1024" height="120" alt="image" src="https://github.com/user-attachments/assets/ac0ea6fe-dcf7-43e0-8bb4-54b29504037b" />
 
@@ -52,13 +52,60 @@ and what i genuinely found? absolutely disgusting content. absolutely not safe f
 i checked through their content for more evidence purposes, and uh.. wlfs headcanon doesn't seem so right about gourdy being 14.
 according to one of wlfs posts, twisted gourdy was 9, and soul being 45 (also necro bi map hc). wlf drew gourdy being fucking crcked within a darkship. and from what i see and disgusted about, also drawing the genital for males onto a child, and putting him through extremely sexual poses and situations, shipping zoophilic ships ofc, and etc (more when i remember)
 
-yeah, it's just all fiction, right? no. this affects reality, of course. it's just the point of  darkshipping, of course, but this way has gotten too fucking far. evidence is on their little darkship account, look at your own risk, but if you want me to show you instead, please dm me. i do not want to show explicit imagery onto this read.me as it could break a rule.
+yeah, it's just all fiction, right? no. this affects reality, of course. it's just the point of  darkshipping, of course, but this way has gotten too fucking far.
 
 it is VERY, VERY weird to post explicit content onto tiktok, maggot. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post, in a platform with also kids apparently.
 
 i know this awareness read.me doesn't seem proper but this is what i can do for the better of everyone's safety and interaction within the gourdy yume/cody/maggot, if anything. 
 
-thank you for reading! remember, dm me for evidence if you don't wanna risk urself checking their account for the evidence!!
+thank you for reading! evidence view below. look at your own risk because it includes explicit, sexual content.
+
+<div align="center">
+
+.
+<div align="center">
+
+.
+<div align="center">
+.
+<div align="center">
+.
+<div align="center">
+.
+<div align="center">
+.
+<div align="center">
+.
+.
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806469524918332/IMG_2793.png?ex=6ae29b17&amp;is=6ae14997&amp;hm=26e563deba1e7402c10e4bd52f2ec7dde3f181347a2df04f7d248783cfc54908&amp;=&amp;format=webp&amp;quality=lossless&amp;width=496&amp;height=496" alt="Image"/>
+
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806468975206400/IMG_2795.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=8d8a9d8d7f2ef3a98308774bc736662ffb43c704b6d8b1c454776ffb71ada721&amp;=&amp;format=webp&amp;quality=lossless&amp;width=544&amp;height=640" alt="Image"/>
+
+<img src="https://cdn.discordapp.com/attachments/1536000538213351498/1564806468719476746/IMG_2796.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=522a91a7f6acbd57f9919b9f16a1e4b67f0082764ace7cfc599d095e42c29176&amp;" alt="Image"/>
+
+(goob x pebble and zoophilia hc)
+ 
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806468132143184/IMG_2797.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=2b7c8f74881f55a670d2dbf3703becc4a60a2f5c47d2be5233bac3fd5e6cc15b&amp;=&amp;format=webp&amp;quality=lossless&amp;width=421&amp;height=640" alt="Image"/>
+
+(probably one of the worst images)
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809364907368578/IMG_2803.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=2571ac8703e6b1c02f15dd9a1760d04f523851e365d7e771aff68fba8f8b129c&amp;=&amp;format=webp&amp;quality=lossless&amp;width=630&amp;height=640" alt="Image"/><
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809365259817050/IMG_2804.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=09742d667d40d430967ac92205c3ae36f71ee186daf7cdcd6dbf3af5331a9b99&amp;=&amp;format=webp&amp;quality=lossless&amp;width=611&amp;height=640" alt="Image"/>
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382032711680/IMG_2802.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=4ba0da7189a86b7b8316bb8bba7aa2311484582bb71f3b4663f606220fed7229&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=613" alt="Image"/>
+
+<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382313726022/IMG_2801.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=fe2d08fb057f875c5e118d912ca07c471c48e673c4c53157bc7010b6df61aec5&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=604" alt="Image"/>
+
+
+thats it for now...
+
+
+
+
 
 
 

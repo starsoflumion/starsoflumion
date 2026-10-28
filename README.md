@@ -132,7 +132,6 @@ i do not expect you to believe me, but it is genuinely for your safety, please.
 
 Update 2 Soon
 
-
-
+OMG THEY DELETED THE ACCOUNT SO I CANT FIND ANYTHING MORE LMAOOO?
 
 

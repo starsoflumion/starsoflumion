@@ -21,7 +21,7 @@ this read me is temporary.
 <div align="left">
 <details>
   <summary><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/320e0174-5bd2-48ee-9463-491d52d8767d" />
-Stamps [ALSO AWARENESS]</summary>
+Stamps [ALSO AWARENESS, FEW WARNINGS AT THE START]</summary>
 <img width="99" height="56" alt="a62" src="https://github.com/user-attachments/assets/56ef7a02-f0b0-4e59-bbea-767c35492fe3" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/64f819a4-458c-45bd-93d8-5182a9f0d4ff" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/77c5f79d-2e85-49f6-bfcb-a912e743c99e" />

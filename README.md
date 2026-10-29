@@ -116,7 +116,7 @@ your style is the same, your ' S ' Style is shown on that too (written reversed)
 View of their 'sfw' gourdy art
 <div align=center">
 <img width="261" height="264" alt="image" src="https://github.com/user-attachments/assets/5298d5f1-e8cf-45e6-b1ad-12b11d4a0d30" />
- 
+ (leaf on their "gourdysona" seems to be the same as the qom drawing.)
 View of similarity: Head #1 , on their dark account.
 
 <img width="89" height="104" alt="image" src="https://github.com/user-attachments/assets/85bac2ec-5b74-40b0-ab38-16caed985513" />

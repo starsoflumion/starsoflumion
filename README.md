@@ -48,7 +48,6 @@ if anything, i was scrolling on tiktok, innocently, until i come across their ac
 <img src="https://media.discordapp.net/attachments/1538298494509391973/1564789333624496128/IMG_2792.png?ex=6ae28b21&amp;is=6ae139a1&amp;hm=6fd6512fef7a23edb06a789f537acc3bf524f6b2c95b2a5883b5b3be05de1390&amp;=&amp;format=webp&amp;quality=lossless&amp;width=344&amp;height=343" alt="Image"/>
 <div align="center">
 
-<a href="(https://www.tiktok.com/@puppygutss_)" style="color: inherit; the geek's account"></a>
 
 and what i genuinely found? absolutely disgusting content. absolutely not safe for tiktok, in my opinion.
 i checked through their content for more evidence purposes, and uh.. wlfs headcanon doesn't seem so right about gourdy being 14.
@@ -102,6 +101,8 @@ thank you for reading! evidence view below. look at your own risk because it inc
 
 <img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382313726022/IMG_2801.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=fe2d08fb057f875c5e118d912ca07c471c48e673c4c53157bc7010b6df61aec5&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=604" alt="Image"/>
 
+
+<a href="(https://www.tiktok.com/@puppygutss_)" style="color: inherit; the geek's account"></a>
 
 thats it for now...
 .

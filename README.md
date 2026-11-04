@@ -44,9 +44,12 @@ Speaking of this person, i have a few things to say about them and this is for a
 
 You know how they stated in their strawpage, "Pro/Darkshippers DNI?"
 if anything, i was scrolling on tiktok, innocently, until i come across their account. (i found out because of their artstyle and about them.) and wlf is a pro/dark. Honestly, please do not send this person threats, but i do NOT condone wlfs actions.
-<div align="right">
+<div align="center">
 <img src="https://media.discordapp.net/attachments/1538298494509391973/1564789333624496128/IMG_2792.png?ex=6ae28b21&amp;is=6ae139a1&amp;hm=6fd6512fef7a23edb06a789f537acc3bf524f6b2c95b2a5883b5b3be05de1390&amp;=&amp;format=webp&amp;quality=lossless&amp;width=344&amp;height=343" alt="Image"/>
 <div align="center">
+
+<img width="608" height="450" alt="image" src="https://github.com/user-attachments/assets/d2165ac8-0ca2-4a42-9b8e-a9c27322edc5" />
+
 
 
 and what i genuinely found? absolutely disgusting content. absolutely not safe for tiktok, in my opinion.
@@ -79,17 +82,21 @@ thank you for reading! evidence view below. look at your own risk because it inc
 .
 .
 
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806469524918332/IMG_2793.png?ex=6ae29b17&amp;is=6ae14997&amp;hm=26e563deba1e7402c10e4bd52f2ec7dde3f181347a2df04f7d248783cfc54908&amp;=&amp;format=webp&amp;quality=lossless&amp;width=496&amp;height=496" alt="Image"/>
+<img width="267" height="267" alt="Screenshot 2026-11-03 8 51 29 PM" src="https://github.com/user-attachments/assets/1c0873bf-d26d-4a6f-810c-80257525ff7d" />
+<img width="282" height="286" alt="Screenshot 2026-11-03 8 51 44 PM" src="https://github.com/user-attachments/assets/c292a4cf-a5d9-4e14-8021-c1e1fd8ae0e2" />
+<img width="242" height="240" alt="Screenshot 2026-11-03 8 51 40 PM" src="https://github.com/user-attachments/assets/3af89c24-390b-489e-90f3-02bb32510cc3" />
 
 
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806468975206400/IMG_2795.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=8d8a9d8d7f2ef3a98308774bc736662ffb43c704b6d8b1c454776ffb71ada721&amp;=&amp;format=webp&amp;quality=lossless&amp;width=544&amp;height=640" alt="Image"/>
-
-<img src="https://cdn.discordapp.com/attachments/1536000538213351498/1564806468719476746/IMG_2796.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=522a91a7f6acbd57f9919b9f16a1e4b67f0082764ace7cfc599d095e42c29176&amp;" alt="Image"/>
 
 (goob x pebble and zoophilia hc)
- 
 
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564806468132143184/IMG_2797.png?ex=6ae29b16&amp;is=6ae14996&amp;hm=2b7c8f74881f55a670d2dbf3703becc4a60a2f5c47d2be5233bac3fd5e6cc15b&amp;=&amp;format=webp&amp;quality=lossless&amp;width=421&amp;height=640" alt="Image"/>
+
+<img width="330" height="281" alt="image" src="https://github.com/user-attachments/assets/717df5fe-e0d2-46b4-86d1-fb79cdd9796a" />
+
+
+<img width="330" height="281" alt="Screenshot 2026-11-03 8 50 50 PM" src="https://github.com/user-attachments/assets/d70ed68a-0eff-4f0f-a270-65c46d82a84b" />
+
+
 
 (probably one of the worst images)
 
@@ -99,7 +106,8 @@ thank you for reading! evidence view below. look at your own risk because it inc
 
 <img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382032711680/IMG_2802.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=4ba0da7189a86b7b8316bb8bba7aa2311484582bb71f3b4663f606220fed7229&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=613" alt="Image"/>
 
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382313726022/IMG_2801.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=fe2d08fb057f875c5e118d912ca07c471c48e673c4c53157bc7010b6df61aec5&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=604" alt="Image"/>
+<img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/bdeaf16c-1d56-478b-84f8-48ded4759689" /><img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/663f1834-9d01-4313-ba4c-ffea510ac64b" />
+
 
 
 <a href="(https://www.tiktok.com/@puppygutss_)" style="color: inherit; the geek's account"></a>

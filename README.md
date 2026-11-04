@@ -48,6 +48,8 @@ if anything, i was scrolling on tiktok, innocently, until i come across their ac
 <img src="https://media.discordapp.net/attachments/1538298494509391973/1564789333624496128/IMG_2792.png?ex=6ae28b21&amp;is=6ae139a1&amp;hm=6fd6512fef7a23edb06a789f537acc3bf524f6b2c95b2a5883b5b3be05de1390&amp;=&amp;format=webp&amp;quality=lossless&amp;width=344&amp;height=343" alt="Image"/>
 <div align="center">
 
+<a href="(https://www.tiktok.com/@puppygutss_)" style="color: inherit; the geek's account"></a>
+
 and what i genuinely found? absolutely disgusting content. absolutely not safe for tiktok, in my opinion.
 i checked through their content for more evidence purposes, and uh.. wlfs headcanon doesn't seem so right about gourdy being 14.
 according to one of wlfs posts, twisted gourdy was 9, and soul being 45 (also necro bi map hc). wlf drew gourdy being fucking crcked within a darkship. and from what i see and disgusted about, also drawing the genital for males onto a child, and putting him through extremely sexual poses and situations, shipping zoophilic ships ofc, and etc (more when i remember)

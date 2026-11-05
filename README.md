@@ -100,11 +100,13 @@ thank you for reading! evidence view below. look at your own risk because it inc
 
 (probably one of the worst images)
 
+<img width="310" height="312" alt="image" src="https://github.com/user-attachments/assets/40937144-2e78-4e6a-b3f4-d1a4f9f60210" />
+
+
 <img src="https://media.discordapp.net/attachments/1536000538213351498/1564809364907368578/IMG_2803.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=2571ac8703e6b1c02f15dd9a1760d04f523851e365d7e771aff68fba8f8b129c&amp;=&amp;format=webp&amp;quality=lossless&amp;width=630&amp;height=640" alt="Image"/><
 
 <img src="https://media.discordapp.net/attachments/1536000538213351498/1564809365259817050/IMG_2804.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=09742d667d40d430967ac92205c3ae36f71ee186daf7cdcd6dbf3af5331a9b99&amp;=&amp;format=webp&amp;quality=lossless&amp;width=611&amp;height=640" alt="Image"/>
 
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809382032711680/IMG_2802.png?ex=6ae29dcd&amp;is=6ae14c4d&amp;hm=4ba0da7189a86b7b8316bb8bba7aa2311484582bb71f3b4663f606220fed7229&amp;=&amp;format=webp&amp;quality=lossless&amp;width=768&amp;height=613" alt="Image"/>
 
 <img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/bdeaf16c-1d56-478b-84f8-48ded4759689" /><img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/663f1834-9d01-4313-ba4c-ffea510ac64b" />
 

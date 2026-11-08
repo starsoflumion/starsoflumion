@@ -125,12 +125,9 @@ UPDATE ONE : 10/28/26
 
 your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, what is this lying . . ? 
 <div align="left">
-<img width="424" height="439" alt="image" src="https://github.com/user-attachments/assets/69187ade-3c28-4aaf-9c42-501aecd8932f" />
-View of their 'sfw' gourdy art
-<div align=center">
-<img width="261" height="264" alt="image" src="https://github.com/user-attachments/assets/5298d5f1-e8cf-45e6-b1ad-12b11d4a0d30" />
- (leaf on their "gourdysona" seems to be the same as the qom drawing.)
-View of similarity: Head #1 , on their dark account.
+ 
+(This part has been requested by one of cody's friends/or cody to be removed as of publishing their sfw art onto this read.me, the similarity of the "head" and "leaf" of gourdy might aswell be found in another awareness doc, thank you.)
+
 
 <img width="89" height="104" alt="image" src="https://github.com/user-attachments/assets/85bac2ec-5b74-40b0-ab38-16caed985513" />
 <img width="148" height="115" alt="image" src="https://github.com/user-attachments/assets/6e1d314c-ad7f-4960-92da-dca70670685f" />

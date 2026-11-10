@@ -36,6 +36,10 @@ Stamps [ALSO AWARENESS, FEW WARNINGS AT THE START]</summary>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/eadd37bd-6e23-46b3-86d0-9876fe83e694" />
 
 
+( I AM DISTANCING MYSELF FROM THIS SITUATION, PLEASE DO NOT SPEAK TO BE ABOUT IT NO LONGER! the read.me will be kept up for my original view.)
+
+
+
 TW FOR MENTIONS OF s3x/r4pe, explicit ship style/contents AND mentions of genitals.
 
 Hello, i would like to state something against the gourdy yume, or maggot (m4gg0tzz)

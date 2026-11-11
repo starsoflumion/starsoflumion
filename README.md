@@ -1,123 +1,26 @@
+<div align="center">
+
+<img width="1024" height="120" alt="image" src="https://github.com/user-attachments/assets/ac0ea6fe-dcf7-43e0-8bb4-54b29504037b" />
+
+ ![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=blue&amp;label=⊹ )
+ 
+this read me is temporary.
+
+┄┄　﹒　᧔𐓪᧓　﹒　┄┄
+
+<div align="center">
+
+ 
+ <img width="360" height="360" alt="blotandveewoah" src="https://github.com/user-attachments/assets/5178dbc8-6595-4ddb-9d6e-0127fbf3d534" />
+ 
+
+<div align="center">
+
+<a href="https://starsoflumion.atabook.org" style="color: inherit;">꒰ 新book ꒱ ‎ ‎‎ ‎</a>
+<a href="https://starsoflumion.straw.page" style="color: inherit;"> ꒰  straw / sp‎ ꒱</a> <a href="https://https://guns.lol/lumi0n" style="color: inherit;">  ‎  ‎  ‎ ꒰ guns‎ ꒱</a>
+<div align="left">
+
 
 <details>
   <summary><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/320e0174-5bd2-48ee-9463-491d52d8767d" />
-[AWARENESS, FEW WARNINGS AT THE START]</summary>
-
- 
-( I AM DISTANCING MYSELF FROM THIS SITUATION, PLEASE DO NOT SPEAK TO BE ABOUT IT NO LONGER! the read.me will be kept up for my original view.)
-
-
-
-TW FOR MENTIONS OF s3x/r4pe, explicit ship style/contents AND mentions of genitals.
-
-Hello, i would like to state something against ̶t̶̶h̶̶e̶ ̶g̶̶o̶̶u̶̶r̶̶d̶̶y̶ ̶y̶̶u̶̶m̶̶e̶, ̶o̶̶r̶ ̶m̶̶a̶̶g̶̶g̶̶o̶̶t̶ (̶m̶̶4̶̶g̶̶g̶̶0̶̶t̶̶z̶̶z̶) A darkshipper that posts explicit content and seems to play ponytown aswell, being very similar to someone's account on here.
-
-Speaking of this person, i have a few things to say about them and this is for awareness purposes to be careful of wlf.
-
-if anything, i was scrolling on tiktok, innocently, until i come across their account. (i found out because of their artstyle and about them.) and wlf is a pro/dark with a very related similarity. Honestly, please do not send this person threats, but i do NOT condone wlfs actions.
-<div align="center">
-<img src="https://media.discordapp.net/attachments/1538298494509391973/1564789333624496128/IMG_2792.png?ex=6ae28b21&amp;is=6ae139a1&amp;hm=6fd6512fef7a23edb06a789f537acc3bf524f6b2c95b2a5883b5b3be05de1390&amp;=&amp;format=webp&amp;quality=lossless&amp;width=344&amp;height=343" alt="Image"/>
-<div align="center">
-
-<img width="608" height="450" alt="image" src="https://github.com/user-attachments/assets/d2165ac8-0ca2-4a42-9b8e-a9c27322edc5" />
-
-
-
-and what i genuinely found? absolutely disgusting content. absolutely not safe for tiktok, in my opinion.
-i checked through their content for more evidence purposes, and uh.. wlfs headcanon doesn't seem so right about gourdy being 14.
-according to one of wlfs posts, twisted gourdy was 9, and soul being 45 (also necro bi map hc). wlf drew gourdy being fucking crcked within a darkship. and from what i see and disgusted about, also drawing the genital for males onto a child, and putting him through extremely sexual poses and situations, shipping zoophilic ships ofc, and etc (more when i remember)
-
-yeah, it's just all fiction, right? no. this affects reality, of course. it's just the point of  darkshipping, of course, but this way has gotten too fucking far.
-
-it is VERY, VERY weird to post explicit content onto tiktok, whoever this person is. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post, in a platform with also kids apparently.
-
-i know this awareness read.me doesn't seem proper but this is what i can do for the better of everyone's safety and interaction within the gourdy yume/cody/maggot, if anything. 
-
-thank you for reading! evidence view below. look at your own risk because it includes explicit, sexual content.
-
-
-it's kinda a bit rude because i strongly dislike this person though.
-
-
-<div align="center">
-
-.
-<div align="center">
-
-.
-<div align="center">
-.
-<div align="center">
-.
-<div align="center">
-.
-<div align="center">
-.
-<div align="center">
-.
-.
-
-<img width="267" height="267" alt="Screenshot 2026-11-03 8 51 29 PM" src="https://github.com/user-attachments/assets/1c0873bf-d26d-4a6f-810c-80257525ff7d" />
-<img width="282" height="286" alt="Screenshot 2026-11-03 8 51 44 PM" src="https://github.com/user-attachments/assets/c292a4cf-a5d9-4e14-8021-c1e1fd8ae0e2" />
-<img width="242" height="240" alt="Screenshot 2026-11-03 8 51 40 PM" src="https://github.com/user-attachments/assets/3af89c24-390b-489e-90f3-02bb32510cc3" />
-
-
-
-(goob x pebble and zoophilia hc)
-
-
-<img width="330" height="281" alt="image" src="https://github.com/user-attachments/assets/717df5fe-e0d2-46b4-86d1-fb79cdd9796a" />
-
-
-<img width="330" height="281" alt="Screenshot 2026-11-03 8 50 50 PM" src="https://github.com/user-attachments/assets/d70ed68a-0eff-4f0f-a270-65c46d82a84b" />
-
-
-
-(probably one of the worst images)
-
-<img width="310" height="312" alt="image" src="https://github.com/user-attachments/assets/40937144-2e78-4e6a-b3f4-d1a4f9f60210" />
-
-
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809364907368578/IMG_2803.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=2571ac8703e6b1c02f15dd9a1760d04f523851e365d7e771aff68fba8f8b129c&amp;=&amp;format=webp&amp;quality=lossless&amp;width=630&amp;height=640" alt="Image"/><
-
-<img src="https://media.discordapp.net/attachments/1536000538213351498/1564809365259817050/IMG_2804.png?ex=6ae29dc9&amp;is=6ae14c49&amp;hm=09742d667d40d430967ac92205c3ae36f71ee186daf7cdcd6dbf3af5331a9b99&amp;=&amp;format=webp&amp;quality=lossless&amp;width=611&amp;height=640" alt="Image"/>
-
-
-<img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/bdeaf16c-1d56-478b-84f8-48ded4759689" /><img width="469" height="382" alt="image" src="https://github.com/user-attachments/assets/663f1834-9d01-4313-ba4c-ffea510ac64b" />
-
-
-
-<a href="(https://www.tiktok.com/@puppygutss_)" style="color: inherit; the geek's account"></a>
-
-thats it for now...
-.
-.
-.
-.
-UPDATE ONE : 10/28/26
-
-' coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that. '
-
-your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, personally i believe this is false, but that's just what i currently see.
-<div align="left">
- 
-(This part has been requested by one of cody's friends/or cody to be removed as of publishing their sfw art onto this read.me, the similarity of the "head" and "leaf" of gourdy might aswell be found in another awareness doc, thank you.)
-
-
-<img width="89" height="104" alt="image" src="https://github.com/user-attachments/assets/85bac2ec-5b74-40b0-ab38-16caed985513" />
-<img width="148" height="115" alt="image" src="https://github.com/user-attachments/assets/6e1d314c-ad7f-4960-92da-dca70670685f" />
-<img width="96" height="82" alt="image" src="https://github.com/user-attachments/assets/e6fdf991-5366-4121-a488-ee37fa2776a9" />
-(First pic from their 'sfw' account, 2nd&3rd on their dark account.
-
-Interests are both mc bushpig and machine girl according to some sounds on the dark account, age is the same, so much similarities! 
-
-listen, don't try to hide it. i've already found out. their sfw account stopped posting at around 10/13/2026, and their dark one seems to be posting more now, within the same artstyle.
-
-
-i do not expect you to believe me, but it is genuinely for your safety, please!!!
-
-
-they deleted the account
-
-nvm they opened up the account again
-
+ wip here</summary>

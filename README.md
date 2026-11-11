@@ -42,12 +42,11 @@ Stamps [ALSO AWARENESS, FEW WARNINGS AT THE START]</summary>
 
 TW FOR MENTIONS OF s3x/r4pe, explicit ship style/contents AND mentions of genitals.
 
-Hello, i would like to state something against the gourdy yume, or maggot (m4gg0tzz)
+Hello, i would like to state something against ̶t̶̶h̶̶e̶ ̶g̶̶o̶̶u̶̶r̶̶d̶̶y̶ ̶y̶̶u̶̶m̶̶e̶, ̶o̶̶r̶ ̶m̶̶a̶̶g̶̶g̶̶o̶̶t̶ (̶m̶̶4̶̶g̶̶g̶̶0̶̶t̶̶z̶̶z̶) A darkshipper that posts explicit content and seems to play ponytown aswell, being very similar to someone's account on here.
 
 Speaking of this person, i have a few things to say about them and this is for awareness purposes to be careful of wlf.
 
-You know how they stated in their strawpage, "Pro/Darkshippers DNI?"
-if anything, i was scrolling on tiktok, innocently, until i come across their account. (i found out because of their artstyle and about them.) and wlf is a pro/dark. Honestly, please do not send this person threats, but i do NOT condone wlfs actions.
+if anything, i was scrolling on tiktok, innocently, until i come across their account. (i found out because of their artstyle and about them.) and wlf is a pro/dark with a very related similarity. Honestly, please do not send this person threats, but i do NOT condone wlfs actions.
 <div align="center">
 <img src="https://media.discordapp.net/attachments/1538298494509391973/1564789333624496128/IMG_2792.png?ex=6ae28b21&amp;is=6ae139a1&amp;hm=6fd6512fef7a23edb06a789f537acc3bf524f6b2c95b2a5883b5b3be05de1390&amp;=&amp;format=webp&amp;quality=lossless&amp;width=344&amp;height=343" alt="Image"/>
 <div align="center">
@@ -62,7 +61,7 @@ according to one of wlfs posts, twisted gourdy was 9, and soul being 45 (also ne
 
 yeah, it's just all fiction, right? no. this affects reality, of course. it's just the point of  darkshipping, of course, but this way has gotten too fucking far.
 
-it is VERY, VERY weird to post explicit content onto tiktok, maggot. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post, in a platform with also kids apparently.
+it is VERY, VERY weird to post explicit content onto tiktok, whoever this person is. you're almost about to be 17, please. you 'headcanon' gourdy as 14, but not even using it right, and also breaks alot of LAWS. this is past darkshipping and crossed the road badly, this is very explicit and disgusting to post, in a platform with also kids apparently.
 
 i know this awareness read.me doesn't seem proper but this is what i can do for the better of everyone's safety and interaction within the gourdy yume/cody/maggot, if anything. 
 
@@ -131,7 +130,7 @@ UPDATE ONE : 10/28/26
 
 ' coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that. '
 
-your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, personally i believe this is lying.
+your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, personally i believe this is false, but that's just what i currently see.
 <div align="left">
  
 (This part has been requested by one of cody's friends/or cody to be removed as of publishing their sfw art onto this read.me, the similarity of the "head" and "leaf" of gourdy might aswell be found in another awareness doc, thank you.)
@@ -145,6 +144,7 @@ your style is the same, your ' S ' Style is shown on that too (written reversed)
 Interests are both mc bushpig and machine girl according to some sounds on the dark account, age is the same, so much similarities! 
 
 listen, don't try to hide it. i've already found out. their sfw account stopped posting at around 10/13/2026, and their dark one seems to be posting more now, within the same artstyle.
+
 
 i do not expect you to believe me, but it is genuinely for your safety, please!!!
 
